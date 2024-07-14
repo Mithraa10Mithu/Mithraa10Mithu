@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on software industries
 - 📫 How to reach me --> smithraaram@gmail.com
 - 😄 Pronouns: I'm a proton
-- ⚡ Fun fact: Sharing my birthday Emma roberts
+- ⚡ Fun fact: Sharing my birthday with Emma roberts
 
 
